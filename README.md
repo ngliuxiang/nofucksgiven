@@ -1,2 +1,2 @@
 # nofucksgiven
-some random code
+I really don't give a fuck about this lol
